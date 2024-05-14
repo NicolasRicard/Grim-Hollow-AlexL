@@ -1,0 +1,1 @@
+Thorne nous demande éventuellement de livrer sa marchandise à Abertuven, à l'avenir.

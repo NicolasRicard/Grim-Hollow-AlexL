@@ -1,0 +1,1 @@
+Durant toute la journée, nous cherchons à convaincre plusieurs habitants du village, dont l'aubergiste et quelques autres, de témoigner en faveur de Eryn, voire de nous.

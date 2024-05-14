@@ -1,0 +1,1 @@
+Après les épreuves du donjon des anciens dieux.Nous rencontrons l'ange Michael, ange d'Aurelia.Michae nous fait un discours.En subtance : "les Ombres prospèrent. je garde un trésor des dieux. Comment empecher ce que les dieux redoutaient."
