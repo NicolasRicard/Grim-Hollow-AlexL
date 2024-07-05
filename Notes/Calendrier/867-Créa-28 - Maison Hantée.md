@@ -1,4 +1,4 @@
-28 du mois de la Création 867. Edward et les autres ont RDV, ce soir, chez le Baron.
+Edward et les autres ont RDV, ce soir, chez le Baron.
 
 Les héros, reposés (sauf Eléanord), se rendent au marché.
 
